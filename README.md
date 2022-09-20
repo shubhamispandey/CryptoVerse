@@ -1,1 +1,1 @@
-https://shubhamispandey.github.io/cryptocurrencies
+https://shubhamispandey.github.io/CryptoVerse/
